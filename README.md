@@ -1,0 +1,5 @@
+- Hi, I’m @c0redumb
+- 
+- I’m interested in just having fun.
+- 
+- You can reach me by sending me a message.
